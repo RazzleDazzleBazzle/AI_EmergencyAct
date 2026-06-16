@@ -1,3 +1,7 @@
+Support Details.
+
+Contact: darrenwilson23@icloud.com
+
 Privacy Policy
 
 AI EmergencyAct — Privacy Policy
